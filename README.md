@@ -1,0 +1,2 @@
+# _DATASCIEN-FOR-GEOSCIENTISTS
+School related 
